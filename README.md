@@ -1,6 +1,5 @@
 
 
-<img src="https://github.com/user-attachments/assets/07f355b8-bbc1-4f53-b2f2-b7d62aaf9877" alt="ShaheelByteCrafters Logo" width="150" align="left" style="margin-right: 20px;"/>
 
 # Welcome to ShaheelByteCrafters 👋
 
