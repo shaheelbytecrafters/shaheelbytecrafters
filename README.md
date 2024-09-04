@@ -27,7 +27,7 @@ We invite you to join us on this exciting journey. Connect with us on [LinkedIn]
 
 ## 📫 Contact Us
 Curious to learn more or want to get in touch? Reach out to us at:
-- **Email**: [contact@shaheelbytecrafters.com](mailto:shaheelbytecrafters@gmail.com)
+- **Email**: [contact@shaheelbytecrafters.com](mailto:info@shaheelbytecrafters.com)
 
 ---
 
