@@ -1,7 +1,5 @@
 
-
-
-![bgbg](https://github.com/user-attachments/assets/ef7b03a4-7b72-4458-9b4c-60259c9c4c88)
+![Yellow Illustrative Brainstorming Presentation (2)](https://github.com/user-attachments/assets/fd1d75bc-825d-47fd-9be3-5fe1a0bbaf3d)
 **ShaheelByteCrafters** is at the forefront of innovation, building powerful software products that will soon redefine the way businesses operate. Our mission is to deliver game-changing solutions that empower businesses to achieve new heights of success.
 
 ## 🌟 Our Vision
